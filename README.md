@@ -1,3 +1,3 @@
 ### MY PUBLIC WEBSITE 
 
-### [SADEW](https://venuja104.github.io/)
+### [VENUJA](https://venuja104.github.io/)
